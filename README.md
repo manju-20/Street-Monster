@@ -1,4 +1,4 @@
-                                            ![z](https://github.com/manju-20/Street-Monster/assets/120158388/1d5ba765-0150-4159-b735-ea9330f3e1fb)
+![z](https://github.com/manju-20/Street-Monster/assets/120158388/1d5ba765-0150-4159-b735-ea9330f3e1fb)
 
 
 # CAR GAMING PROJECT
